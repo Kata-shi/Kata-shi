@@ -13,5 +13,9 @@
 
 ◉ ハブバツ **Rage Motions**😍.. Graphic Designer..😝
 
+◉ 🥰 Firstly Known For Carding, Hacking, GFX Designer, Cracking etc...
+
 ## Wanna Contact? 
-**Come In [Telegram](https://t.me/Xhubu)**
+[![telegram badge](https://img.shields.io/badge/@Xhubu-30302f?style=for-the-badge&logo=telegram)](https://t.me/xhubu)
+[![mailid badge](https://img.shields.io/badge/Xhubu-30302f?style=for-the-badge&logo=gmail)](https:mailto:XhubuPro@gmail.com)
+
