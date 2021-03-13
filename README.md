@@ -10,3 +10,8 @@
 ◉ We can only learn to love by loving...😍😘
 
 ◉ Never Gonna? Shine Ahh!! 💢🎯
+
+◉ ハブバツ **Rage Motions**😍.. Graphic Designer..😝
+
+### Wanna Contact? 
+**Come In [Telegram](https://t.me/Xhubu)**
