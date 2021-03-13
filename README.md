@@ -7,3 +7,6 @@
 
 ◉ **[Mahi](https://t.me/Se_l_fie)** My Life..🤩😍
  
+◉ We can only learn to love by loving...😍😘
+
+◉ Never Gonna? Shine Ahh!! 💢🎯
