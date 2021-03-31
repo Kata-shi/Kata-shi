@@ -1,4 +1,5 @@
 # Hey There 
+![Aoxic](https://telegra.ph/file/6b14510ac254ee156d478.jpg)
 #### Its Me @Aoxic Here.. 
 > Aoxic A Nub Guy.. 
 
