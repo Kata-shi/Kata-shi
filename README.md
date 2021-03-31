@@ -1,4 +1,4 @@
-# Hey There 
+<h1 align="center">Hi 👋, I'm Aoxic</h1>
 ![Aoxic](https://telegra.ph/file/6b14510ac254ee156d478.jpg)
 #### Its Me @Aoxic Here.. 
 > Aoxic A Nub Guy.. 
@@ -8,3 +8,8 @@
 > Fun Fact I Am A Noob.. 
 
 > Currently Unavailable 
+
+<h3 align="center">Contact Me Here!</h3>
+<p align='center'>
+  <a href="https://t.me/AoxicBot"><img src="https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&amp;logo=telegram&amp;logoColor=white" alt="Contact Me on Telegram"></a>
+</p>
