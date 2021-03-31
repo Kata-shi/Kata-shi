@@ -1,3 +1,4 @@
 # Hey There 
 #### Its Me @Aoxic Here.. 
-#### Nub In Github
+> Aoxic A Nub Guy.. 
+> Click [Here](kekma.net) To See Magic
