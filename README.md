@@ -2,7 +2,7 @@
 
 > Aoxic A Nub Guy.. 
 
-> Click [Here](kekma.net) To See Magic
+> Click [Here](https://kekma.net) To See Magic
 
 > Fun Fact I Am A Noob.. 
 
