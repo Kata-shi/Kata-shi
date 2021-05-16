@@ -2,7 +2,7 @@
 - **Here Is A Biggest Noob Ever You Seen..**
 - **🔥 [Pyrogram](https://pyrogram.org) Lover♥️**
 - **Still Equality Is A Joke** 
-- **⚠️Fun Fact⚠️ I Am Indian🇮🇳 And India Is Lob♥️**
+- **I Am Indian🇮🇳 And India Is Lob♥️**
 
 **Hobbies :**
 
